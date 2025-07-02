@@ -8,3 +8,6 @@ Az osztály hangulatán nem segített, hogy egy előzőnél hangosabb üvöltés
 Miklós bácsi leintette a gyerekeket, majd se szó, se beszéd, elindult lefelé a sötétbe vezető lépcsőn.
 
 A lépcső minden egyes foka nyugtalanítóan nyikorgott, ahogy Miklós bácsi eltűnt a sötétségben. A gyerekek dermedten álltak, visszafolytott lélegzettel nézték Miklós bácsi eltűnő alakját.
+
+Egy tompa puffanás hallatszott lentről, majd csend lett.
+Bence, a kíváncsi természetéről ismert hatodikos, odasúgta a többieknek: „Szerintem utánanézünk, nem?”
