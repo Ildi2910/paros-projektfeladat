@@ -11,3 +11,6 @@ A lépcső minden egyes foka nyugtalanítóan nyikorgott, ahogy Miklós bácsi e
 
 Egy tompa puffanás hallatszott lentről, majd csend lett.
 Bence, a kíváncsi természetéről ismert hatodikos, odasúgta a többieknek: „Szerintem utánanézünk, nem?”
+
+„Eszednél vagy?” - Kiáltotta Julcsi. 
+„Tiszta por lenne tőle a hajam!” - Mondta szemforgatva.
