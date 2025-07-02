@@ -16,3 +16,10 @@
     6. commit - few modification + 2 sentences - Sándor
     7. commit - next 2 by Ildikó
     8. commit - next step - Sándor
+    9. commit - they went down the stairs - Ildikó
+    10. commit - found some painting - Sándor
+    11. commit - and found some writing on the painting - Ildikó
+    12. commit - the door was opened - Sándor
+    13. commit - the room was revealed - Ildikó
+    14. commit - is it true? - Sándor
+    15. commit - the key - Ildikó

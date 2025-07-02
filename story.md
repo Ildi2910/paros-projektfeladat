@@ -30,3 +30,5 @@ A fém halkan megnyikordult az ujjai alatt, és az ajtó lassan, recsegve kitár
 
 A szobában lévő figurák mozdulatlanul álltak, de szemük mintha a belépőket követte volna.
 Julcsi hátrált egy lépést, és suttogva kérdezte: „Biztos, hogy ez csak egy másolat… ugye?”
+
+Julcsi kérdésére senki sem felelt. A csendet végül egy halk kattanás törte meg: a terem közepén álló alak egyik karja lassan megmozdult, és egy kulcsot nyúltott Bence felé.
