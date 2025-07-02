@@ -19,3 +19,6 @@ Bence azonban már a lépcső tetején állt, és zseblámpát varázsolt elő a
 A többiek hezitálva követték, egyikük sem akarta kimondani, de mindannyian érezték: ez nem egy átlagos iskolai nap lesz.
 
 A lépcső alján egy keskeny folyosóra érkeztek, amelyet fáklyák világítottak meg. Miklós bácsi ott állt egy hatalmas freskó előtt és lassan a gyerekek felé fordult.
+
+„Úgy tűnik, valaki már járt itt előttünk” – mondta halkan, miközben ujjával végigsimított a poros kőfalra vésett jeleken.
+A freskón egy csuklyás alak állt egy kulccsal a kezében, háttérben egy hatalmas, vasalt ajtóval.
