@@ -14,3 +14,5 @@
     4. commit - sentences 6th and 7th - Sándor
     5. commit - spacing + sentences 8-9 - Ildikó
     6. commit - few modification + 2 sentences - Sándor
+    7. commit - next 2 by Ildikó
+    8. commit - next step - Sándor

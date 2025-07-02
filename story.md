@@ -14,3 +14,6 @@ Bence, a kíváncsi természetéről ismert hatodikos, odasúgta a többieknek: 
 
 „Eszednél vagy?” - Kiáltotta Julcsi. 
 „Tiszta por lenne tőle a hajam!” - Mondta szemforgatva.
+
+Bence azonban már a lépcső tetején állt, és zseblámpát varázsolt elő a hátizsákjából, mintha erre a pillanatra készült volna.
+A többiek hezitálva követték, egyikük sem akarta kimondani, de mindannyian érezték: ez nem egy átlagos iskolai nap lesz.
