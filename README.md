@@ -23,3 +23,5 @@
     13. commit - the room was revealed - Ildikó
     14. commit - is it true? - Sándor
     15. commit - the key - Ildikó
+    16. commit - the chosen one - Sándor
+    17. commit - Bence takes the key - Ildikó
