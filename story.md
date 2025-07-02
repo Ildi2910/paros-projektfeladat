@@ -36,4 +36,6 @@ Julcsi kérdésére senki sem felelt. A csendet végül egy halk kattanás tört
 Bence ösztönösen hátralépett, de a kulcs lebegve követte, mintha csak neki szánták volna.
 Miklós bácsi elkomorodott, és komoly hangon szólt: „Úgy tűnik, választottak valakit közülünk.”
 
-Miklós bácsi szavain felbátorodva Bence a kult után nyúlt. Amint ujjai hozzáértek a kulcshoz, az felizott és a terem falai megremegtek.
+Miklós bácsi szavain felbátorodva Bence a kulcs után nyúlt. Amint ujjai hozzáértek a kulcshoz, az felizott és a terem falai megremegtek.
+
+A levegő megfagyott körülöttük, és a figurák szemei élénken kezdtek világítani, mintha most ébrednének életre. Egy mély, visszhangzó hang töltötte be a termet: „A titkok kapuja megnyílt, készen álltok a próbatételre?”
