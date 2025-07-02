@@ -17,3 +17,5 @@ Bence, a kíváncsi természetéről ismert hatodikos, odasúgta a többieknek: 
 
 Bence azonban már a lépcső tetején állt, és zseblámpát varázsolt elő a hátizsákjából, mintha erre a pillanatra készült volna.
 A többiek hezitálva követték, egyikük sem akarta kimondani, de mindannyian érezték: ez nem egy átlagos iskolai nap lesz.
+
+A lépcső alján egy keskeny folyosóra érkeztek, amelyet fáklyák világítottak meg. Miklós bácsi ott állt egy hatalmas freskó előtt és lassan a gyerekek felé fordult.
