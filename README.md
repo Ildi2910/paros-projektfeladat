@@ -25,3 +25,5 @@
     15. commit - the key - Ildikó
     16. commit - the chosen one - Sándor
     17. commit - Bence takes the key - Ildikó
+    18. commit - the door of secrets - Sándor
+    19. commit - 

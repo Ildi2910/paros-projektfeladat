@@ -39,3 +39,5 @@ Miklós bácsi elkomorodott, és komoly hangon szólt: „Úgy tűnik, választo
 Miklós bácsi szavain felbátorodva Bence a kulcs után nyúlt. Amint ujjai hozzáértek a kulcshoz, az felizott és a terem falai megremegtek.
 
 A levegő megfagyott körülöttük, és a figurák szemei élénken kezdtek világítani, mintha most ébrednének életre. Egy mély, visszhangzó hang töltötte be a termet: „A titkok kapuja megnyílt, készen álltok a próbatételre?”
+
+Julcsi tétován előre lépett: „Ha már úgyis poros lett a hajam, legalább valami értelme legyen." Bence mellé lépett és együtt megindultak a kapu felé. 
