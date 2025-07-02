@@ -24,3 +24,6 @@ A freskón egy csuklyás alak állt egy kulccsal a kezében, háttérben egy hat
 
 Bence közelebb lépett, és hunyorogva próbálta kibetűzni a freskó alá vésett sorokat.
 „Nézzétek... itt van valami írás” - suttogta. - „Vajon hova vezethez az az ajtó?"
+
+„Csak egy módon deríthetjük ki” – válaszolta Miklós bácsi, miközben már a kilincs felé nyúlt.
+A fém halkan megnyikordult az ujjai alatt, és az ajtó lassan, recsegve kitárult előttük.
