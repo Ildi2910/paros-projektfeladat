@@ -43,3 +43,5 @@ A levegő megfagyott körülöttük, és a figurák szemei élénken kezdtek vil
 Julcsi tétován előre lépett: „Ha már úgyis poros lett a hajam, legalább valami értelme legyen." Bence mellé lépett és együtt megindultak a kapu felé. 
 
 Mögöttük az ajtó lassan becsukódott, a fáklyák fénye pedig vakító villanással kialudt. Egy szűk alagút nyílt meg előttük, falain ismeretlen szimbólumok villództak, mintha maga a járat is vizsgálná, kik merészkedtek át rajta.
+
+És ahogy az első lépést megtették a rejtélyek ösvényén, egyikük sem sejtette, hogy ezzel egy évszázadok óta őrzött titok kulcsává váltak.
