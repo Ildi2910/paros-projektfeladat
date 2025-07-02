@@ -32,3 +32,6 @@ A szobában lévő figurák mozdulatlanul álltak, de szemük mintha a belépők
 Julcsi hátrált egy lépést, és suttogva kérdezte: „Biztos, hogy ez csak egy másolat… ugye?”
 
 Julcsi kérdésére senki sem felelt. A csendet végül egy halk kattanás törte meg: a terem közepén álló alak egyik karja lassan megmozdult, és egy kulcsot nyúltott Bence felé.
+
+Bence ösztönösen hátralépett, de a kulcs lebegve követte, mintha csak neki szánták volna.
+Miklós bácsi elkomorodott, és komoly hangon szólt: „Úgy tűnik, választottak valakit közülünk.”
