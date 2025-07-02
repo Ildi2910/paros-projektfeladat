@@ -2,7 +2,6 @@
 
 Az iskola tornatermének padlója egyszer csak furcsán elkezdett nyikorogni és recsegni. A testnevelő tanár, Miklós bácsi épp bemelegítést vezényelt, amikor hirtelen egy deszka alól por szállt fel. Az osztály döbbenten nézte, ahogy a padló egyik része lassan megemelkedik, mintha valami alulról feszítené.
 
-
 Miklós bácsi azonban nem ijedt meg, és egy hatalmasat taposott a kiálló deszkára.
 Az osztály hangulatán nem segített, hogy egy előzőnél hangosabb üvöltés kisérte a mozdulatot. A nyikorgó deszka alól egy rozsdás fémlépcső vezetett lefelé, amit eddig vastag porréteg rejtett el a szemek elől.
 Miklós bácsi leintette a gyerekeket, majd se szó, se beszéd, elindult lefelé a sötétbe vezető lépcsőn.
@@ -22,3 +21,6 @@ A lépcső alján egy keskeny folyosóra érkeztek, amelyet fáklyák világíto
 
 „Úgy tűnik, valaki már járt itt előttünk” – mondta halkan, miközben ujjával végigsimított a poros kőfalra vésett jeleken.
 A freskón egy csuklyás alak állt egy kulccsal a kezében, háttérben egy hatalmas, vasalt ajtóval.
+
+Bence közelebb lépett, és hunyorogva próbálta kibetűzni a freskó alá vésett sorokat.
+„Nézzétek... itt van valami írás” - suttogta. - „Vajon hova vezethez az az ajtó?"
